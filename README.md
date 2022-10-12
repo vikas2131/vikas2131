@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on front and back end projects
 - 📫 How to reach me ...
         Instagram: @vikaspal2131
-        Twitter: @vikasenjoy
+        Twitter: @vikasPal_iO
         Discord: Penny#8158
 
 <!---
